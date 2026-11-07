@@ -1,0 +1,2 @@
+# dostaryma_komektesemin_oyin
+dostaryma_komektesemin_oyin
